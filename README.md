@@ -6,6 +6,5 @@
 
 .
 
-.
 
-<details>
+<summary>BYI</summary>
