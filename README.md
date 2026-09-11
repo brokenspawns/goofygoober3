@@ -7,4 +7,5 @@
 .
 
 
-<summary>BYI</summary></I am a huge kinnie of SpongeBob!So expect me to be very hyper and overly friendly or talkative at times>
+<summary>BYI</details>
+</I am a huge SpongeBob kinnie so expect me to be hyper,akward and talkative when I like you!>
