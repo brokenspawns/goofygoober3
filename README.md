@@ -6,6 +6,12 @@
 
 .
 
+<details>
+  <summary>BYI</summary>
+I am a huge SpongeBob fictkin so expect me to have moments where I am extremely akward or VERY talkative and hyper
+   
+I am fast to anger but I try not to show it much because I hate hurting other's feelings no matter who they are.
 
-<summary>BYI</details>
-</I am a huge SpongeBob kinnie so expect me to be hyper,akward and talkative when I like you!>
+I have had bad experiences with shippers so iwec ships unless you are close friends,,
+
+## THIS IS STILL WIP
