@@ -8,5 +8,4 @@
 
 .
 
-WIP
-
+<details>
